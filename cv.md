@@ -19,7 +19,6 @@ Before joining the course, I independently studied:
 
 Took courses on platforms:
 
--     Stepik
 
 -     Itlogia
 
