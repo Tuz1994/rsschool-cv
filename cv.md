@@ -4,7 +4,7 @@
 
 **Date of birth:** 25.11.2994
 
-**Place of Residence:** Belarus, Minsk
+**Place of Residence:** Belarus, Svetlogorsk
 
 **Phone number:** +375447679250
 
